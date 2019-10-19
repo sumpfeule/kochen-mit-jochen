@@ -2,16 +2,17 @@ Appenzeller Zwiebelkuchen
 =========================
 (O: Chefkoch)
 
-1 Packung Quicheteig (Kühltheke, Bon Maman)
-800 g Zwiebeln
-225g Bacon
+1 Packung Quicheteig (Kühltheke, Tante Fanny)
+1000 g Zwiebeln
+300g Speck
 200g Schmandt (24%)
 2 Eier
 100g Käse (z.B. Appenzeller)
 Muskat, Salz, Pfeffer Majoran, Kümmel nach belieben
 
 
-Zwiebeln in Halbringe schneiden, mit Butter glasig schwitzen. Währenddessen den Bacon im Backofen bei 200C auf Alufolie oder Rost knusprig braten. Alt: Erst Speck braten, in dem Fett die Zwiebeln anschwitzen.
+Speck in Würfel schneiden, auslassen. Währenddessen Zwiebeln in grobe würfel schneiden und zum Speck geben. 
+Glasig schwitzen, dabei darauf achten, dass nicht zu viel Flüssigkeit in den Zwiebeln bleibt.
 Zwiebeln in Schüssel umfüllen, Ei mit mit Gewürzen & Schmand verrühren und untermischen.
 
 Pizza-Rundform d=       cm mit Teig auslegen.
