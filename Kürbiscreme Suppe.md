@@ -15,10 +15,9 @@ https://www.youtube.com/watch?v=Q4FtRBQquqc
 Salz / Pfeffer, Fette Brühe
 
 
-Zwiebeln anschwitzen, Curry dazu. Kürbis, Möhren und Kartoffeln zugeben und mitschwitzen, mit Salz und Pfeffer würzen. Nicht anbräunen.
+Zwiebeln anschwitzen, Curry dazu. Kürbis, Möhren und Kartoffeln zugeben und mitschwitzen, mit Salz und Pfeffer würzen. Nicht anbräunen.Ablöschen mit Gemüsebrühe, 45 Min kochen bis Matsche, pürieren und abschmecken. Suppe zu dick lassen, ergibt ca. 4 Liter.
 
-Ablöschen mit Gemüsebrühe, 45 Min kochen bis Matsche, pürieren und abschmecken. Suppe zu dick lassen.
 Einmachen und vor dem Erhitzen mit Sahne verdünnen.
 
 
-
+Einkochen: X bei 100 Grad
