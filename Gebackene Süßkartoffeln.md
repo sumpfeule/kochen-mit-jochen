@@ -7,11 +7,11 @@
 
 	15g  diced  pickled jalapeno
 
-		1/2 cup grated sharp white cheddar cheese, plus a little bit for the top
+	1/2 cup grated sharp white cheddar cheese, plus a little bit for the top
 
-		2 tablespoons crème fraiche, or sour cream
+	2 tablespoons crème fraiche, or sour cream
 
-		2 teaspoons fresh lime juice
+	2 teaspoons fresh lime juice
 
 salt, freshly ground black pepper, and cayenne to taste
 
