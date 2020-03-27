@@ -19,6 +19,7 @@ Das Gemüse abseihen und die so entstandenen 2.2 Liter Fond auf 2 Liter einkoche
 Für die Soße eine Mehlschwitze herstellen und mit Schmand, Zitrone, Salz, Pfeffer, klarer Brühe abschmecken. Preißelbeeren oder Grafschafter Goldsaft für ein wenig Süße nach Geschmack.
 
 Pastetchen 2018
+===============
 
 1kg Schweineknochen
 200g Zwiebelnn
@@ -47,7 +48,7 @@ Gemüse 1-2 Stunden weiter kochen lassen.
 Gemüse entfernen und auf 2 Liter reduzieren, per Mehlschwitze in eine Sosse verwandeln. Farbe nach Belieben.
 
 
-Pastetchen 2018
+Pastetchen 2019
 ===============
 a) Fond
 1 kg MArkknochen vom Schwein
@@ -55,6 +56,19 @@ a) Fond
 600g Zwiebel
 1.35g Piment, 6.5g Pfefffer, 0.5g Nelken
 3 Liter wasser
+
+b) Fleisch
+
+
+
+Fleisch anbraten, in Topf geben. Gemüse bis auf die Zwiebeln zugeben und mit Brühe bedecken.
+Zwiebeln glasig dünsten und zugeben.
+Bei mittelhoher Hitze zum Simmern bringen, und das Fleisch bis zu einer Kerntemperatur von 70 Grad garen.
+Fleisch entnehmen, abdecken (Topf mit Deckel) und Kalt stellen (Is Dezember, also draussen).
+Gemüse 1-2 Stunden weiter simmern.
+
+
+
 
 Fleisch portionsweise im Oben anrösten (ca. 20 Min pro Seite bei 200 Grad Umluft), mit Zwiebeln und Gewürzen in einen Topf geben und mit Wasser aufgiessen. 
 Langsam zum Simmern bringen und über Nacht (ca. 10 Stunden) auf kleinster Flamme simmern lassen. Feststoffe abschöpfen und Fond kalt stellen bis benötigt.

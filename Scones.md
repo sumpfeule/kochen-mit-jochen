@@ -9,6 +9,7 @@ Scones
     120 Gramm Butter
     250 Gramm Vollmilchjoghurt
     1 Eigelb und etwas Wasser
+    (ergibt etwa 18-20 Scones)
 
     
 
@@ -17,8 +18,6 @@ Was soll ich sagen? Einfach alles zusammen rühren? Fast. Das Eigelb mit Wasser 
 Eigelb mit Wasser vermischen und die Scones auf dem Backbleich (mit Backpapier oder Silikonmatte) großzügig bestreichen. Im vorgeheizten Backofen bei 170 Grad Umluft etwa 15 Minuten backen, abkühlen lassen.
 
 
-Der Clotted Cream Ersatz
+Der Clotted Cream Ersatz (Clockefuck)
 
-Was wären Scones ohne Clotted Cream? In Deutschland bleiben einige wenige Versender, wo man diese Cream bekommen kann. Gute Tipps zum selber machen habe ich nach dem Lesen des ersten Schrittes (Sahne acht bis zwölf Stunden im Backofen erwärmen) verworfen.
-
-Allerdings findet man auch einige Anleitungen im Netz für einen Clotted-Cream-Ersatz. ich habe das aufs wesentliche reduziert und vermische Mascarpone mit etwas Sahne, bis die Konsistenz zäh, aber streichfähig ist. Ohne Zucker, Aromen, Gewürze.
+Vermische Mascarpone mit etwas Sahne, bis die Konsistenz zäh, aber streichfähig ist. Ohne Zucker, Aromen, Gewürze.
