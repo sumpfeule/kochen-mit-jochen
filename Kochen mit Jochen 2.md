@@ -317,3 +317,48 @@ Empanadas:
 58g Zwiebel
 8g Knoblauch 
 Manchego 
+
+
+Köttbullar (Rezept Ikea)
+500g Rinderhack
+250 Schweinehack
+1 Zwiebel
+1 Zehe Knoblauch
+100g Semmelbrösel
+1 Ei
+5 EL Milch
+Salz, Pfeffer, Muskat
+
+Sauce:
+40g Butter
+40G mehl
+150ml Gemüsebrühe
+150ml Rinderfond
+150 ML Sahne
+2 tl Sojasosse
+1 tl Dijon senf
+
+Here’s how you start making those fantastic Swedish meatballs:
+
+Combine the beef and the pork mince and mix all of it thoroughly to break up any lumps. Add finely-chopped onion, garlic, breadcrumbs, egg and mix. Add milk and season well with salt and pepper. Shape the mixture into small, round balls. Place on a clean plate, cover and store in the fridge for 2 hours. This helps them hold their shape while cooking. In a frying pan, heat oil on medium heat. When hot, gently add your meatballs and brown on all sides. When browned, add to an ovenproof dish and cover. Place in a hot oven, 350 degrees Fahrenheit or 180 degrees Celsius, and cook for a further 30 minutes.
+
+Now, it’s time to make the cream sauce:
+
+Melt the butter in a frying pan. Whisk in the plain flour and continue cooking, stirring continuously for 2 minutes. Add the vegetable stock and beef stock and continue to stir. Add the thick double cream, soy sauce, and Dijon mustard. Bring to a simmer and allow the sauce to thicken. Continue to stir. When ready to eat, serve with your favorite potatoes—either creamy mash or mini new boiled potatoes. And voilà, dear Pandas, we’re ready to start eating!
+
+
+
+
+Nudeln in Lachs-Sahne-Soße
+
+    500 g Lachs, frisch oder tiefgekühlt und aufgetaut
+    400 g Pasta, z.B. Tagliatelle
+    300 g Schlagsahne (32% Fett) - oder Kochsahne (15% Fett)
+    20 g Butter
+    1-2 EL Tomatenmark - zum Abschmecken
+    2 TL gekörnte Gemüsebrühe - zum Abschmecken
+    1 EL Pflanzenöl, neutral - z.B. Rapsöl, Sonnenblumenöl
+    Pfeffer - zum Abschmecken
+
+
+

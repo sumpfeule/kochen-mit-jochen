@@ -5,7 +5,7 @@
 1/4 c Zucker
 1/9 c salz
 
-
+Oregano 
 Knoblauch
 
-Oregano richt fies. Weglassen.
+

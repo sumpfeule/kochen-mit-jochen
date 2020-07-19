@@ -16,4 +16,4 @@ Süßkartoffeln einstechen, mit Olivenöl rundum einreiben und bei 200 Grad 60 M
 Süßkartoffeln oberstes Drittel abscheiden, auskratzen. Rundherum ein wenig Kartoffel stehen lassen (stabiliere Basis).
 
 Fleisch, Creme fraiche und käse mit limettensaft mischen, fein stampfen. Bacon und Jalapeño untermischen, Kartoffeln füllen, Käse drauf und ~ 20 Minuten bei 20~0 Grad aufwärmen.
-Wahrscheinlich auch toll, um damit Brote zu überbacken. (ist eh immer zu viel füllung)
+Auch toll, um damit Brote zu überbacken. (ist eh immer zu viel füllung)
