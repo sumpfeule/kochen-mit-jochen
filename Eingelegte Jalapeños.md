@@ -17,7 +17,7 @@ Währenddessen Wasser, Essig, Zucker und Salz aufkochen.
 Jalapeños in die Gläser füllen, Oregano und Knoblauch zugeben und mit dem Sud deckend begießen.
 
 Gläser verschliessen und bei 90 Grad Celsius 30 Minten einkochen. 
-Dazu eignet sich bei solchen Kleinmengen hervorragend ein mittlerer Tops und ein Soud-Vide Gerät.
+Dazu eignet sich bei solchen Kleinmengen hervorragend ein mittlerer Topf und ein Soud-Vide Gerät.
 
 
 
