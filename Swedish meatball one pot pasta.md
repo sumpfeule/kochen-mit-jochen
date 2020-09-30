@@ -1,8 +1,8 @@
 One-Pot-Pasta Kötbullar, lazy version
 
 300 g TK Kötbullar
-350 ml Hühner- oder Schweinefond
-150 ml Schlafsahne
+250 ml Hühner- oder Schweinefond (1 kl glas)
+200g Schlagsahne
 1 zwiebel klein
 1 TL Worcestershire sauce
 200 Bandnudeln mit Ei

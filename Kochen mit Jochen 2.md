@@ -174,14 +174,7 @@ Weiteres
 Obwohl es nach Werbung aussieht, ist Miracel Whip Dreh- und Angelpunkt des Rezepts. Sicher kann man andere Mayonaise nehmen, ob das allerdings dann noch schmeckt, habe ich nicht ausprobiert und bezweifle es auch stark :)
 
  
-Kartoffelsalat mit Brühe
-========================
-1kg Kartoffeln (Drillilnge wenn möglich)
-1.5 Brühwuerfel (Fette Brühe)
-250 ml Wasser
-2EL Balsamico
-160g Zwiebeln
-250g Bacon
+
 
 Coq au vin
 ==========

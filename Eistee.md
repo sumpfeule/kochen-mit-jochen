@@ -8,5 +8,3 @@ Eistee I
 Wasser kochen, Tee 3 Min ziehen lassen, Zucker und Zitronensaft zugeben.
 
 
-
-Virtual Host eingetragen | IP-Adresse: 37.202.4.26
