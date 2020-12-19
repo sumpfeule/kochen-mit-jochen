@@ -1,13 +1,13 @@
 Pastetchen 2017, 
 ===============
-1400g Lummerbraten (aka Schweinelachsbraten) 
-3 Packen Suppengrün (870g Möhre, 550g Sellerie, 350 Lauch) 
-570g Zwiebel 
-
-70g Butter / Liter Fond 
-70 g Mehl / Liter Fond 
-1-1.5 Packungen Schmand pro L Fond 
-Zitrone 
+1400g Lummerbraten (aka Schweinelachsbraten)  
+3 Packen Suppengrün (870g Möhre, 550g Sellerie, 350 Lauch)  
+570g Zwiebel   
+  
+70g Butter / Liter Fond  
+70 g Mehl / Liter Fond  
+1-1.5 Packungen Schmand pro L Fond  
+Zitrone  
 
 Gemüse in Walnussgrosse Stücke schneiden. Fleisch scharf von alles Seiten scharf anbraten, entnehmen, Gemüse kurz Farbe nehmen lassen. Fleisch zurück in den Topf und sanft(!)  für zwei Stunden köcheln lassen.
 
@@ -19,23 +19,19 @@ Für die Soße eine Mehlschwitze herstellen und mit Schmand, Zitrone, Salz, Pfef
 
 Pastetchen 2018
 ===============
+1kg Schweineknochen  
+200g Zwiebelnn  
+  
+1450g Schweinelachs  
+772 Möhren  
+230 Petersillienwurzel  
+450 Lauch  
+570 Zwiebel  
+440 Sellerie  
 
-1kg Schweineknochen
-200g Zwiebelnn
-
-1450g Schweinelachs
-772 Möhren
-230 Petersillienwurzel
-450 Lauch
-570 Zwiebel
-440 Sellerie
-
-70g Butter/ Liter fond
-70g Mehl / Liter Fond
-1-1 1/2 Bescher Schmand / Liter Fond
-
-
-
+70g Butter/ Liter fond  
+70g Mehl / Liter Fond  
+1-1 1/2 Bescher Schmand / Liter Fond  
 
 Knochen im Backofen mit Zwiebeln anrösten, in Topf geben und mit Wasser auffüllen. 6-12 Stunden sanft köcheln lassen.
 Feststoffe entnehmen, Fond  beiseite stellen
@@ -49,21 +45,21 @@ Gemüse entfernen und auf 2 Liter reduzieren, per Mehlschwitze in eine Sosse ver
 
 Pastetchen 2019
 ===============
-a) Fond 
-1 kg Markknochen vom Schwein 
-1 kg Fleischknochen vom Schwein 
-600g Zwiebeln 
-1.35g Piment, 6.5g Pfefffer, 0.5g Nelken 
-3 Liter wasser 
+a) Fond  
+1 kg Markknochen vom Schwein  
+1 kg Fleischknochen vom Schwein  
+600g Zwiebeln  
+1.35g Piment, 6.5g Pfefffer, 0.5g Nelken  
+3 Liter wasser  
+  
+b) Fleisch  
+1.5 kg Lummerbraten | Schweinelachs | Innstrang vom Kotlett  
 
-b) Fleisch
-1.5 kg Lummerbraten | Schweinelachs | Innstrang vom Kotlett
-
-Verhältnisse:
-2l Fond pro 1.5 kg Fleisch (roh) 
-70g Butter/ Liter fond 
-70g Mehl / Liter Fond 
-1-1 1/2 Bescher Schmand / Liter Fond 
+Verhältnisse:  
+2l Fond pro 1.5 kg Fleisch (roh)   
+70g Butter/ Liter fond   
+70g Mehl / Liter Fond  
+1-1 1/2 Bescher Schmand / Liter Fond  
 
 Fleisch anbraten, in Topf geben. Gemüse bis auf die Zwiebeln zugeben und mit Brühe bedecken.
 Zwiebeln glasig dünsten und zugeben.
