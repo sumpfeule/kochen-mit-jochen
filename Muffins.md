@@ -1,14 +1,14 @@
 Muffins
 ========
-270 g Mehl (Typ 405)
-1 pr Salz
-100 g Butter 
+270 g Mehl (Typ 405)  
+1 pr Salz  
+100 g Butter  
 240 g Milch (ich wiege Flüssigkeiten immer ab, das ist genauer) 
-1 Ei
-8 g Backpulver 
-130 g Zucker 
+1 Ei  
+8 g Backpulver   
+130 g Zucker  
 
-
+ 
 
 
 	Grundrezept. Kaum Süße, gute Konsistenz.
