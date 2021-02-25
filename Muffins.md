@@ -3,7 +3,7 @@ Muffins
 270 g Mehl (Typ 405)  
 1 pr Salz  
 100 g Butter  
-240 g Milch (ich wiege Flüssigkeiten immer ab, das ist genauer) 
+240 g Milch  
 1 Ei  
 8 g Backpulver   
 130 g Zucker  
