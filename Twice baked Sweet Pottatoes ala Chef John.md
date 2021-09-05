@@ -2,7 +2,7 @@
  ========================================
  Ingredients for 4 portions (oder 2 als Hauptgericht)
 
-$ Süßkartoffeln (1000g zusammen, gewaschen)  
+4 Süßkartoffeln (1000g zusammen, gewaschen)  
 100g Baconscheiben  
 60g Frühlingszwiebeln, in Ringe geschnitten  
 20g Eingelegte Jalapeños 
