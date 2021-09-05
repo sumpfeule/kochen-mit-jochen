@@ -2,14 +2,14 @@
  ========================================
  Ingredients for 4 portions (oder 2 als Hauptgericht)
 
-4 orange-fleshed sweet potatoes, scrubbed clean 1000g
-100g  bacon, sliced
-60g sliced green onions
-20g diced jalapeno (eingelegte)
-100g  grated sharp white cheddar cheese, plus a little bit for the top
-2 EL crème fraiche, or sour cream 
-2 LT fresh lime juice (nicht weglassen!)
-salt, freshly ground black pepper, and cayenne to taste
+$ Süßkartoffeln (1000g zusammen, gewaschen)  
+100g Baconscheiben  
+60g Frühlingszwiebeln, in Ringe geschnitten  
+20g Eingelegte Jalapeños 
+100g kräftiger Reibekäse  
+2 EL crème fraiche  
+2 EL frischer Limettensaft (nicht weglassen!)  
+Salz, Pfeffer und Cayenne nach Geschmack  
 
 Süßkartoffeln einstechen, mit Olivenöl rundum einreiben und bei 200 Grad 60 Minuten oder bis sehr zart backen. Speck bis leicht angeknuspert anbraten (Fett schäumt), Frühlingszwiebeln und Jalapeño zugben, 60 sek. mitkochen, abschalten.
 
