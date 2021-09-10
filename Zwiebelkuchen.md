@@ -2,13 +2,14 @@ Appenzeller Zwiebelkuchen
 =========================
 (O: Chefkoch)
 
-1 Packung Quicheteig (Kühltheke, Tante Fanny)
-1000 g Zwiebeln
-300g Speck
-200g Schmandt (24%)
-2 Eier
-100g Käse (z.B. Appenzeller)
-Muskat, Salz, Pfeffer Majoran, Kümmel nach belieben
+1 Packung Quicheteig (Kühltheke, Tante Fanny)  
+1000 g Zwiebeln  
+300g Speck  
+200g Schmandt (24%)  
+2 Eier  
+100g Käse (z.B. Appenzeller)  
+Muskat, Salz, Pfeffer Majoran, Kümmel nach belieben  
+  
 
 
 Speck in Würfel schneiden, auslassen. Währenddessen Zwiebeln in grobe würfel schneiden und zum Speck geben. 
