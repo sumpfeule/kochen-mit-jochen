@@ -1,12 +1,9 @@
-Milchreis
-=========
-Iter1
-
-1/2 Liter Milch, zimmerwarm 
-125 g Milchreis 
-2 EL Zucker 
-1 EL Butter 
-1 Vanilleschote(n) oder 1 Pck.Vanillezucker 
+# Milchreis
+1/2 Liter Milch, zimmerwarm  
+125 g Milchreis  
+2 EL Zucker  
+1 EL Butter  
+1 Vanilleschote(n) oder 1 Pck.Vanillezucker  
 
 Zimtzucker oder Apfelmus, Rote Grütze bzw. frische Früchte
 
