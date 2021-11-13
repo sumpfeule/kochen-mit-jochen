@@ -29,3 +29,4 @@ Topf zumachen und zum Abkühlen nach draußen stellen.
 Wenn kühl, umfüllen in Fermenter.  
 
 5 g  Mangrove Jacks Hefe 30 Min in lauwarmen wasser rehydrieren un zugeben, bei 25 °C  7 Tage fermentieren (oder bis fertig)  
+https://share.brewfather.app/PrOTshO0h9TMjv
