@@ -14,7 +14,7 @@
   
 5g Mangrove Jacks M12  
   
-Maischwasser auf 72°C Vorheizen, Malz einrühren. Die Temperatur sollte bei 60-69°C landen.  
+Maischwasser auf 72°C Vorheizen, Malz einrühren. Die Temperatur sollte bei 65-69°C landen.  
 Topf einpacken und 60 Minuten  rasten lassen (ab und an umrühren).  
 Währenddessen Nachguß  auf 78°C erwärmen
   
