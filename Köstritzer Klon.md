@@ -14,13 +14,12 @@
   
 5g Mangrove Jacks M12  
   
-Maischwasser auf 72°C Vorheizen, Malz einrühren. Die Temperatur sollte bei 65-69°C (optimal 68°C)landen.  
-Topf einpacken und 60 Minuten  rasten lassen (ab und an umrühren).  
-Währenddessen Nachguß  auf 78°C erwärmen
-  
-Danach auf 78°C erhitzen und vom Herd nehmen.  
+Maischwasser auf 57-60°C Vorheizen, Malz einrühren. 
+Auf 64°C  aufheizen, 40 Minten halten. 
+Weiterheizen auf 72°C, 15 Minuten halten, danach auf 78°C erwärmen. Kopf vom Herd nehmen.
 
 Maische in ein Sieb über einem Eimer geben, nachläutern bis einigermaßen klar, dann mit Nachguß läutern.  
+Währenddessen Nachguß  auf 78°C erwärmen
 
 Maische zurück in Topf und zum Kochen bringen.  
 Hopfenzugebe am Anfang (35g), nach 20 Min(8.7g) und nach Abschalten (8.7g)  
