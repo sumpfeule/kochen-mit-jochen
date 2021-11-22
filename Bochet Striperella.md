@@ -39,4 +39,8 @@ Abschalten Heigung, fermentieren bei ~ 20 °C (Wohnzimmer)
  FG aktuell unklar, bisher fertiger Bochet ausgetrunken, ohne Probe zu nehmen :)
  
  
+ ## Fazit 
+ Extrem leckerer Geschmack, primär wenig metlastig. Komplett eigene Geschmacksrichtung, und in der versuchten Charge (2.3 l Glas) in guter Restsüße.
+ Süß, aber kein Mittelaltermarkt-Dosenöffner.
+ Abwarten, was die Hauptcharge so kann :)
  
