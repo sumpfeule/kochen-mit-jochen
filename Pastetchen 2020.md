@@ -51,3 +51,32 @@ Bei Knick im Geschmack geht auch Zitrone.
 
 
 
+
+# Pastetchen 2021
+4 kg Schweineknochen
+3 Karotten
+1 Stange Lauch
+2 Zwiebeln
+ca 300 g Knollensellerie
+Pfeffer,  2 Lorbeerblätter
+
+2100g Schweinelachs
+
+2.5l Fond / 2 kg Fleisch roh
+3  Becher Creme Fraiche / 2.5 Liter Fond
+70g Butter /l Fond
+70g Mehl /l Fond
+
+Fond Kochen: Knochen portionsweise bei 200 °C im Ofen anrösten (ca 30 min pro Portion) und zusammen mit dem Gemüse in einen 10l Topg geben.
+Mit kaltem Wasser auffüllen und langsam zum Simmern bringen. 4-8 Stunden simmern lassen. Abseihen und zum Abkühlen nach draußen  stellen.
+Ergibt ca 5 Liter Fond, benötigt werden 2.5. Rest einkochen.
+
+Fett von Fond entfernen und den Schweinelachs in dem Fond auf eine Kerntemperatur von 60 °C ziehen lassen. Zum Abkühlen nach draußen stellen und danach in ca 1 cm Würfel schneiden.
+
+175g Butter schmelzen, mit 175g Mehl zu Mehlschwitze verarbeiten. 
+Mit Fond auffüllen, Creme Fraiche zugeben und mit 
+
+
+
+
+
